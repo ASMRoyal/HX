@@ -1,4 +1,4 @@
-# HX
+# HX (cracked & lifetime)
 HX is a Powerful &amp; Undetected Mod Menu for FiveM Servers
 
 ## Showcase
