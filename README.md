@@ -3,4 +3,4 @@ HX is a Powerful &amp; Undetected Mod Menu for FiveM Servers
 
 ## Showcase
 
-![HX](https://github.com/ASMRoyal/HX/assets/89786570/ae3debf2-7331-483a-9ed3-f33370e61f62)
+![HX](https://github.com/ASMRoyal/HX/assets/89786570/3c0ccc2f-fac6-4f58-9d47-bf4c448a9bc7)
